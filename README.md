@@ -1,1 +1,0 @@
-# leefgeld-is-een-recht-om-financieel-beslag-op-te-leggen
